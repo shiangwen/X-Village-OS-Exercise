@@ -1,1 +1,0 @@
-# X-Village-OS-Exercise
